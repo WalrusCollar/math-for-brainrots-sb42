@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with secret math for brainrots Scripts, the #1 Script. Includes auto-heal and unlimited stamina for
 
 
 
